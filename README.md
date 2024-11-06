@@ -1,4 +1,10 @@
 ## Hi there 👋
+Catch your luck by the tail 🌠
+Girl, 20.
+~ Python, C++
+Blog: https://vk.com/club214902791
+For ever, Ari..
+tg: @rewoTaniM
 
 <!--
 **MinaTower/MinaTower** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
